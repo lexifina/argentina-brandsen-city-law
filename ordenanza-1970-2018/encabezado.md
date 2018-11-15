@@ -1,0 +1,12 @@
+Ordenanza Nº1970
+Ordenanza Nº 1970
+Brandsen, 21/08/2018
+El Expte. Nº 4015-23.110/18, en el cual el Sr. Secretario de Protección Ciudadana y Habilitaciones realiza un detalle de la situación actual de la problemática de la Seguridad Vial, más precisamente de lo que tiene que ver con la constatación, fiscalización y seguimiento de las multas de tránsito, y su posterior Juzgamiento desde las modificaciones legislativas de los últimos años, y;
+CONSIDERANDO:
+Que mediante Ordenanza Nro. 590, promulgada por Decreto Nº 36 de fecha 18 de Enero del año 1996, fue creado el Juzgado de Faltas Municipal de Brandsen, a fin que llevara a cabo la actividad procedimental y juzgamiento de las contravenciones cometidas en ésta Jurisdicción;
+Que, las infracciones detectadas por las distintas dependencias municipales y/o provinciales en ejercicio de su poder de policía, cuyo juzgamiento se encuentra bajo la competencia del Juzgado de Faltas Municipal se han visto sustancialmente disminuidas luego de la aprobación de la Ley Nacional de Tránsito 24.449 y su correspondiente adhesión provincial mediante Ley 13.927;
+Que la estructura Municipal actual se ha robustecido en forma evidente desde la sanción de la ordenanza de creación de Juzgado de Faltas, haciendo posible atender al juzgamiento de las escasas infracciones cuya competencia aún recae sobre la órbita de éste Municipio;
+Que, se ha podido constatar que, durante el periodo de licencia de la Dra. Ferrari entre el día 1º de julio de 2011 hasta el 1º de diciembre de 2015, el cumplimiento de las funciones de juzgamiento en cabeza del Ejecutivo Municipal lo ha sido en forma eficiente, habiendo atendido las necesidades del servicio, lo cual permitiría efectuar una reorganización prescindiendo de la estructura orgánica funcional del Juzgado de Faltas;
+Que, sin perjuicio de ello y ante la situación descripta por la Secretaría de Protección Ciudadana y Habilitaciones, resulta necesario disolver el Juzgado de Faltas Municipal, y que el Departamento Ejecutivo asuma las facultades de procesamiento, juzgamiento y cobro de las contravenciones municipales que se susciten en el partido de Brandsen, y que resulten competencia de la Municipalidad teniendo en cuenta las modificaciones legislativas reseñadas;
+Que la presente se dicta con fundamento en los arts. 19 inc. b), 21 y 52 del Decreto Ley 8751/77 y sus modificatorias, arts. 24 y 25 de la L.O.M.;
+ORDENANZA
