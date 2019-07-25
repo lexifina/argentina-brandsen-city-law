@@ -1,0 +1,19 @@
+Ordenanza Nº2014
+Ordenanza Nº 2014
+Brandsen, 18/03/2019
+El Convenio Específico de Cooperación Técnica suscripto entre la Universidad Nacional Arturo Jauretche (UNAJ), la Sociedad Rural de Coronel Brandsen y La Municipalidad de Brandsen; y,
+CONSIDERANDO:
+Que las partes se comprometen a llevar a cabo la promoción de acciones conjuntas, tendientes a crear lazos de colaboración, cooperación y complementación, para el desarrollo de las actividades educativas que se detallan en el “Proyecto Ejecutivo”, que formando parte del presente se adjunta como Anexo I;
+Que la “UNAJ” se compromete a aportar el personal docente necesario para el dictado de una comisión cerrada y a término de la carrera Tecnicatura Universitaria en Emprendimientos Agropecuarios del Instituto de Ingeniería y Agronomía de la Universidad Nacional Arturo Jauretche y al otorgamiento de Títulos una vez cumplidos los requisitos previstos en el Curso de Preparación Universitaria y el Plan de Estudios de la Carrera;
+Que la “Sociedad Rural” garantiza las instalaciones edilicias para el funcionamiento de la carrera Tecnicatura Universitaria en Emprendimientos Agropecuarios, el financiamiento para los gastos de movilidad de los docentes desde su domicilio hasta la sede en Brandsen y de los estudiantes para las practicas al campo y demás gastos que implique el apoyo administrativo de la carrera;
+Que “El Municipio” garantiza el financiamiento de los cargos docentes, ajustados por paritarias, del Curso de Preparación Universitaria y de las materias del Ciclo Inicial, así como la continuidad de la financiación de los rubros que la Sociedad Rural tiene a su cargo, en el caso de que esta última incumpla total o parcialmente con las obligación asumidas;
+Que las partes se comprometen a facilitar el intercambio mutuo de información que consideren pertinente a los fines de este acuerdo sobre el conjunto de actividades que realizan;
+Que a los efectos del logro de los fines propuestos, se designara una comisión mixta denominada “Unidad de Coordinación” integrada por un representante de cada entidad;
+Que este convenio no autoriza a las partes a expresarse en nombre de la otra, verbalmente o por escrito, como así tampoco a revelar los resultados que surjan de la acción conjunta;
+Que los productos que surjan en el marco del presente serán de propiedad intelectual compartida en partes iguales, independientemente del esfuerzo o inversión, y no podrán ser utilizados por parte de los estudiantes que hayan participado en ellos con fines lucrativos, no obstante, podrán ser utilizados en ámbitos académicos y citarlos como antecedentes de su actividad técnico profesional;
+Que el personal que asigne cada una de las partes para la ejecución de las actividades previstas en el presente convenio continuara bajo la dependencia laboral de la institución proponente, debiendo las mismas afrontar los riesgos de accidentes y enfermedades de su propio personal y/o estudiantes mientras desempeñen sus actividades;
+Que los bienes muebles e inmuebles de las partes afectados a la ejecución del presente convenio, o los que pudieran agregarse en el futuro, así como los gastos de mantenimiento, continuaran afectados al patrimonio de la parte a la cual pertenecen o con cuyos fondos hubiesen sido adquiridos;
+Que el presente convenio tiene un plazo de vigencia de tres (3) años a partir del momento de su firma y/ o hasta la finalización del Plan de Estudios, según lo que ocurra en última instancia;
+Que en caso de discrepancia las cuestiones serán sometidas a la Jurisdicción del Juzgado Federal del departamento judicial de Quilmes, renunciando a cualquier otro fuero o jurisdicción que pudiere corresponder, siempre y cuando no puedan ser resultas de manera amistosa directa y pacifica ante las instancias jerárquicas correspondientes;
+Que conforme al Art. 41 y 273 del Decreto Ley Nº 6769/58 y modificatorias, corresponde darle intervención al Honorable Concejo Deliberante;
+ORDENANZA
