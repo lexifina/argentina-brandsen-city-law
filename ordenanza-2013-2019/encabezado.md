@@ -1,0 +1,27 @@
+Ordenanza Nº2013
+Ordenanza Nº 2013
+Brandsen, 18/03/2019
+El Convenio Específico de Uso Precario suscripto entre la Sociedad Operadora Ferroviaria Sociedad de Estado (SOFSE) y La Municipalidad de Brandsen; y,
+CONSIDERANDO:
+Que la Sociedad Operadora Ferroviaria Sociedad de Estado (SOFSE) otorga a la Municipalidad de Brandsen, en adelante El Permisionario, un permiso de uso precario respecto del inmueble ubicado en la estación Brandsen de la Línea General Roca;
+Que el inmueble en cuestión solo podrá ser utilizado para actividades, charlas y exposiciones culturales, siendo causal de rescisión contractual la variación de su destino y/o actividad autorizada;
+Que El Permisionario no podrá utilizar y/o explotar con fines publicitarios y/o comerciales el inmueble, quedando expresamente prohibida la colocación de cualquier tipo de publicidad que no sea previamente autorizada por SOFSE, incluida la que estuviera relacionada con la actividad a realizar;
+Que el Permisionario tampoco podrá realizar o permitir la realización de propaganda electoral, política partidaria, comercial, sindical, de organizaciones no gubernamentales, instituciones religiosas u otras constituidas bajo cualquier fin, sin autorización previa por parte de SOFSE;
+Que el presente convenio tendrá un plazo de vigencia de doce (12) meses contados a partir del día 1° de marzo de 2019, venciendo de pleno derecho el día 29 de febrero del año 2020, el cual podrá ser renovado por el termino de doce (12) meses debiendo manifestar en forma fehaciente treinta (30) días antes la voluntad de renovar el permiso;
+Que El Permisionario se ocupara de la limpieza, conservación y mantenimiento del entorno de la estación Brandsen, veredas, paradas de taxi y espacios verdes sobre la calle Ituzaingó de la ciudad de Brandsen, como así también deberá hacerse cargo de los servicios de energía eléctrica, gas natural, telefonía y agua corriente;
+Que los impuestos, tasas, cargas, contribuciones o patentes de cualquier naturaleza o jurisdicción existentes o a crearse y que directamente o indirectamente gravasen este acuerdo, correrán por cuenta y costo del permisionario;
+Que El Permisionario será responsable del pago de toda carga o multa derivada del incumplimiento o violación de disposiciones legales, laborales, previsionales, sociales, impositivas, administrativas, actuales o futuras emanadas de los organismos competentes de aplicación en el orden nacional, provincial, o municipal, derivados de la utilización del inmueble y/o de la actividad que se realice en el mismo;
+Que El Permisionario no podrá introducir modificaciones en el inmueble sin la previa y expresa autorización de SOFSE;
+Que el Estado Nacional y/o el Ministerio de Transporte y/o SOFSE y/o ADIFSE podrán suspender total o parcialmente el servicio de trenes y/o impedir temporariamente el acceso de público usuario a las estaciones, no generando ello derecho a reclamo alguno a favor del permisionario;
+Que el Estado Nacional y/o el Ministerio de Transporte y/o SOFSE y/o ADIFSE se reservan el derecho de hacer variar la ubicación del inmueble autorizado;
+Que El Permisionario se obliga a informar a SOFSE por medio fehaciente la nómina de empleados que tendrá a su cargo tareas a desarrollar en el inmueble, siendo a su exclusivo cargo las obligaciones relacionadas con el mismo;
+Que la normativa aplicable serán la Ley de Ferrocarriles Nacionales N° 2.873, como así también las resoluciones del entonces Ministerio del Interior y Transporte N° 477/13, 848/13, 1083/13, 1093/13, 1244/13, 1342/13 y 171/15 y 517-E/2017;
+Que El Permisionario deberá responder ante el Ministerio de Transporte y/o ADIFSE y/o SOFSE por los daños y perjuicios directos o indirectos, que la utilización del inmueble, o la actuación del permisionario o sus dependientes pudieran ocasionar tanto en bienes del Estado Nacional, del Ministerio de Transporte de SOFSE y ADIFSE, como en terceras personas;
+Que El Permisionario se obliga a contratar a su cargo un seguro de integral de comercio, de responsabilidad civil, de riesgos del trabajo, de vida obligatorio, de accidentes personales, para todo riesgo en obra, debiendo estar vigentes durante el tiempo que dure el permiso;
+Que El Permisionario no podrá ceder, subdividir, o transferir total o parcialmente el presente permiso, ni el inmueble y sus instalaciones;
+Que incumplimiento de las obligaciones a cargo del Permisionario facultara a SOFSE a resolver el presente permiso, y a este último, al Estado Nacional, y/o al Ministerio de Transporte y/o la ADIFSE a demandar judicialmente el cese del incumplimiento;
+Que El Permisionario deberá restituir el inmueble dentro de los días siguientes a la finalización del presente, sea por cualquier tipo de causal, debiendo retirar todos los elementos que hubieren en el mismo;
+Que SOFSE se reserva la facultad de revocar, resolver o rescindir el presente contrato cuando así lo considere;
+Que para el supuesto que una controversia debiera someterse a conocimiento de la justicia, las partes se someten a la jurisdicción de los Tribunales Nacionales en lo Contencioso Administrativo Federal con asiento en la Ciudad Autónoma de Buenos Aires, renunciando expresamente a todo otro fuero y/o jurisdicción que les pudiere corresponder y a las disposiciones de la Ley N° 17.091;
+Que conforme al Art. 41 y 273 del Decreto Ley Nº 6769/58 y modificatorias, corresponde darle intervención al Honorable Concejo Deliberante;
+ORDENANZA
