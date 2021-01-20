@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Prohíbese la circulación de Vehículos Pesados (Camiones, Tractores,chasis, Remolques, Semi Acoplados, Acoplados, etc.) en las Calles y Avenidas pavimentadas de la Zona urbana de la TOTALIDAD de las localidades del Distrito de Brandsen.-
