@@ -1,0 +1,12 @@
+Ordenanza Nº2115
+Ordenanza Nº 2115
+Brandsen, 16/11/2020
+El Convenio de Compromiso de Cooperación a suscribirse entre LIONS CLUBS INTERNACIONAL FUNDATION y la Municipalidad de Brandsen, y;
+CONSIDERANDO:
+Que LIONS CLUBS INTERNACIONAL FUNDATION, financia y desarrolla programas destinados a ayudar a personas necesitadas de todo el mundo, siendo uno de ellos el programa Sight First, subvencionando la instalación y/o reequipamiento de Clínicas Oftalmológicas en funcionamiento y/o a crearse;
+Que la Municipalidad se compromete a instalar, en el espacio físico por ella elegido, un Consultorio Oftalmológico en la Ciudad de Brandsen, siendo a su exclusivo cargo las reformas edilicias necesarias, la totalidad de los recursos humanos, los insumos y gastos totales del funcionamiento permanente, la instalación del equipamiento que provea LIONS CLUBS INTERNATIONAL FUNDATION y del restante que deba adquirir la Municipalidad para poner en funciones el citado Consultorio; asimismo se hará cargo de la habilitación del mismo, de los seguros y mantenimiento de los equipos recibidos en comodato;
+Que el Señor Manuel Caro en carácter de Director del Proyecto de la Media Luna Oftalmológica para el Distrito O-5 bajo el programa Sight First de LIONS CLUBS INTERNATIONAL FUNDATION, se compromete a realizar las gestiones necesarias, a asesorar, coordinar y elaborar el Proyecto a los efectos de la obtención de la subvención para la instalación de equipamiento para el Consultorio Oftalmológico Municipal en la Ciudad de Brandsen, no percibiendo por dichas tareas ningún tipo de remuneración, viáticos y/o aportes de la Municipalidad de Brandsen.
+Que el Comité Distrital del Proyecto de la Media Luna Oftalmológica y el futuro Club de Leones de Brandsen se comprometen a controlar el funcionamiento del Consultorio, una vez que se encuentre en funcionamiento y el buen uso del equipamiento instrumental oftalmológico;
+Que se deja expresa constancia que los instrumentos y equipamiento oftalmológico, detallados en el Anexo I, adquiridos por LIONS CLUBS INTERNATIONAL FUNDATION, para el Consultorio Oftalmológico Municipal de Brandsen, serán de propiedad exclusiva de dicha Fundación. Cumplidos 10 (diez) años de ejecución del presente Proyecto, pasara a ser propiedad exclusiva de la Municipalidad de Brandsen previa aceptación de la donación por parte del H.C.D;
+Que conforme al Art. 41 y 273 del Decreto Ley Nº 6769/58 y modificatorias, corresponde darle intervención al Honorable Concejo Deliberante;
+ORDENANZA
