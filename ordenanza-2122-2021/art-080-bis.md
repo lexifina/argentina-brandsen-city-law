@@ -1,0 +1,4 @@
+ARTÍCULO 80º BIS.- Autorizase, a partir del 1 de abril de 2020, al Departamento Ejecutivo a actualizar el monto de las tasas, derechos, contribuciones, patentes, alícuotas y demás obligaciones fiscales a que hace referencia la presente Ordenanza.
+La presente autorización podrá ser ejercida en el caso en que los salarios de los agentes municipales verifiquen aumentos, teniendo la citada actualización como tope el porcentaje de aumento que sufran los salarios mencionados, tomándose como valor de referencia el sueldo mínimo de la categoría ingresante en el escalafón administrativo municipal, en su equivalente a cuarenta (40) horas semanales.
+Asimismo, el Departamento Ejecutivo queda autorizado a establecer dicha actualización de manera total o parcial, y determinar fechas y porcentajes en que resulte obligatorio su pago.
+CERTIFICADO DE LIBERACIÓN DE TASAS Y DERECHOS MUNICIPALES

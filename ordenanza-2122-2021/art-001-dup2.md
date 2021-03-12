@@ -1,0 +1,2 @@
+ARTÍCULO 1º.- La presente Ordenanza Fiscal regirá en todo el ámbito territorial del Partido de Brandsen, siendo su objeto la determinación, fiscalización y percepción de las obligaciones fiscales (tasas, contribuciones, patentes, permisos, retribuciones de servicios y derechos), que se regulan en el Título II de esta Ordenanza, en la Ordenanza Impositiva anual; o en cualquier otra sometida a su régimen, y que se dicte en el futuro.-
+TRIBUTOS

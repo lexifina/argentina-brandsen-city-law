@@ -1,0 +1,3 @@
+ARTÍCULO 50º bis. - El Departamento Ejecutivo puede aceptar en pago, en los términos del artículo 942º y siguientes del Código Civil y Comercial de la Nación, a pedido de los contribuyentes o responsables y con relación a deudas fiscales, la prestación de servicios, ejecución de obras públicas, venta y/o provisión de bienes que los mismos ofrezcan, respetando iguales límites a los establecidos para las adquisiciones y contrataciones directas en la Ley Orgánica de las Municipalidades.
+El sistema previsto en el presente puede realizarse supliendo cualquier Tasa, Derecho, Patente y/o Contribución.
+JUICIO DE APREMIO
