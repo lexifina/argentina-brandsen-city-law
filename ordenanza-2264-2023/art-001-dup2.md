@@ -1,0 +1,1 @@
+ARTICULO 1º: Convalídese la adenda Nª CONVE-2022-41482874 – GDEBA – DAINTERMHYDUGP, rectificando el monto establecido para la construcción de treinta y seis (36) viviendas adjunta a fs. 36, la cual se adjunta a la presente.-
