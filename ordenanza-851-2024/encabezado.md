@@ -1,0 +1,6 @@
+Ordenanza Nº851
+Ordenanza Nº 851
+Brandsen, 02/06/2000
+La ley 11.430 “Código de Tránsito de la Provincia de Buenos Aires”, reglamentada por Decreto N° 2719/94, en cuyo artículo 1° permite el dictado de normativas complementarias, en interés del orden público, siempre que no alteren o modifiquen lo establecido por la Ley; Y,
+CONSIDERANDO: La necesidad de una adecuación y modernización de la normativa vigente, como así una ampliación a vacíos legables; Que, del análisis realizado, se advierte un pronunciado incumplimiento en materia de uso de caminos de tierra durante o posterior a días de lluvias; Que, existen en la actualidad vehículos con sistemas motrices especialmente diseñados y equipados para transportarse en terrenos anegadizos; Que, muchas veces esos vehículos, comúnmente denominados “ 4 x 4” o “ 2 x 4”, utilizan los caminos vecinales durante o posterior a las lluvias, para realizar competencias o pruebas de destreza; Que, la Ley 11.430 en su artículo 71, menciona expresamente la no transitabilidad hasta tres (3) días después de terminada una lluvia, pero solamente para vehículos pesados “camiones, tractores, etc.,”; POR ELLO, EL HONORABLE CONCEJO DELIBERANTE DE BRANDSEN, EN USO DE LAS ATRIBUCIONES QUE LE SON PROPIAS, SANCIONA LA SIGUIENTE:
+ORDENANZA
