@@ -1,0 +1,10 @@
+Ordenanza Nº2386
+Ordenanza Nº 2386
+Brandsen, 21/04/2025
+El Expte. Nº 4015.36.846/25 y;
+CONSIDERANDO:
+Que a fs. 1 obra la nota donde consta que la Asociación Cooperadora Hospital Municipal “Francisco Caram”, manifiesta la voluntad de hacer entrega, en carácter de donación, de cuatro (4) carros de limpieza -modelo xtreme – con dos (2) baldes para ser utilizados en el Hospital Municipal Francisco Caram de nuestra Localidad;
+Que a fs.6 se expide la Subsecretaria Legal y Técnica indicando: “A la Sra. Directora de Despacho y Digesto de la Municipalidad de Brandsen S/D Vienen las presentes actuaciones a esta Subsecretaría Legal y Técnica a fin de emitir opinión con respecto a la presentación efectuada por la Asociación Cooperadora del Hospital Municipal “FRANCISCO CARAM” quien refiere haber adquirido cuatro (4) carros de limpieza -modelo xtreme – con dos (2) baldes con la intención de ser donados a este nosocomio. Adjunta a los fines Certificado de Persona Jurídica del Ministerio de Justicia y Derechos Humanos de la Provincia de Buenos Aires, Acta N° 53 en copia y de la factura de adquisición por la suma de un millón seiscientos mil treinta y cinco con cincuenta y dos pesos con ocho centavos ($1.635.052,08).Del análisis de la situación, es de opinión de esta Subsecretaría que resulta beneficioso para el Hospital la donación pretendida por la Asociación ya que estos bienes tienden a mantener el ambiente hospitalario en condiciones óptimas tanto para los y las pacientes como para el resto de las personas que hacen uso de sus instalaciones. Por lo tanto, y en virtud de lo estipulado en el artículo 57 de la Ley Orgánica de las Municipalidades, esta dependencia entiende que resulta acorde a derecho elevar la pertinente Ordenanza al Honorable Concejo Deliberante a fin de la pertinente aceptación.”
+Que es competencia de este Honorable Cuerpo, de acuerdo a lo previsto en el Artículo 57º de la Ley Orgánica de las Municipalidades, la aceptación de las donaciones recibidas por el municipio;
+POR ELLO
+ORDENANZA
