@@ -2884,6 +2884,90 @@
      "sha256": "7523c69777074b994cd2aad431a66efb9ffa805d5b74c954257dad0b638a9ed1"
     }
    ]
+  },
+  {
+   "slug": "ordenanza-1938-2018",
+   "short": "Ordenanza 1938/2018",
+   "title": "Ordenanza 1938/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/830/contents/1199671",
+   "versions": [
+    {
+     "from": "2018-04-14",
+     "units": 6,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/830/contents/1199671",
+     "sha256": "7278814cba6346d52f5fecf0f16b6d0021828a579b00f20d12b7d5b0da9dd4ae"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-1943-2018",
+   "short": "Ordenanza 1943/2018",
+   "title": "Ordenanza 1943/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/832/contents/1201799",
+   "versions": [
+    {
+     "from": "2018-04-29",
+     "units": 4,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/832/contents/1201799",
+     "sha256": "6872fc0ae60c096e1cfb0a0873cbc172552e72bd9ad39dada8eb2124e3598bdb"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-1946-2018",
+   "short": "Ordenanza 1946/2018",
+   "title": "Ordenanza 1946/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/887/contents/1209968",
+   "versions": [
+    {
+     "from": "2018-05-24",
+     "units": 4,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/887/contents/1209968",
+     "sha256": "89d3d2b53a291e988d489310e52e2fbb4bb9c53002f085d5e9eb441772342dc9"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-1948-2018",
+   "short": "Ordenanza 1948/2018",
+   "title": "Ordenanza 1948/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/1052/contents/1225335",
+   "versions": [
+    {
+     "from": "2018-07-15",
+     "units": 5,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/1052/contents/1225335",
+     "sha256": "ed13c8f5641180d0fcb092aef73de21a24f63b2a1b78d547df2b2793e6feefa6"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-1953-2018",
+   "short": "Ordenanza 1953/2018",
+   "title": "Ordenanza 1953/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/1181/contents/1236976",
+   "versions": [
+    {
+     "from": "2018-09-05",
+     "units": 4,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/1181/contents/1236976",
+     "sha256": "d1a62f9c5d14d737e3434ac30441209ea4ff2a66c4e2064cd26fc20e601a0e73"
+    }
+   ]
+  },
+  {
+   "slug": "ordenanza-1962-2018",
+   "short": "Ordenanza 1962/2018",
+   "title": "Ordenanza 1962/2018",
+   "url": "https://sibom.slyt.gba.gob.ar/bulletins/1542/contents/1260498",
+   "versions": [
+    {
+     "from": "2018-11-15",
+     "units": 4,
+     "source_url": "https://sibom.slyt.gba.gob.ar/bulletins/1542/contents/1260498",
+     "sha256": "892586338bb9979e4e37a0e7a8fbdbd027ac2c4eb745ea6bbb072517b50ea79b"
+    }
+   ]
   }
  ]
 }

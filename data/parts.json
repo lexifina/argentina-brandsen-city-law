@@ -230,6 +230,17 @@
     "ordenanza-2452-2026"
    ],
    "sha256": "517b0f2127d8ef55fb957032d4d23a285b86b710f2b000de9a67e3d7e394bed7"
+  },
+  "40-q258-earlier-ordinances.json": {
+   "acts": [
+    "ordenanza-1938-2018",
+    "ordenanza-1943-2018",
+    "ordenanza-1946-2018",
+    "ordenanza-1948-2018",
+    "ordenanza-1953-2018",
+    "ordenanza-1962-2018"
+   ],
+   "sha256": "1ead3ffb9b43b60ececfd54a0d557fd1f3f65ff567874d1a03db73c7e23c2c08"
   }
  },
  "schema": 1
